@@ -1,4 +1,13 @@
-Política de Privacidad
+Correo electrónico de soporte:
+📧 angpach@live.com
+
+Tiempo de respuesta:
+⏱️ Hasta 48 horas hábiles.
+
+**Producto:** galeria_de_fotos
+**Product ID:** b26aaf86-5ddc-474f-94b4-ed2f3201d3b9
+
+**Política de Privacidad**
 
 Última actualización: 21/2/2026
 
